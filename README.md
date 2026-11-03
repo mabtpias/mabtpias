@@ -14,7 +14,7 @@
 <p align="center"> αɳ∂૨ε  ✦  αρρℓε </p>
 <p align="center"> รɦε / ƭɦεყ </p>
 <p align="center"> αɳ∂૨εω2002 ҡเɳ   ✦  ∂ɓℓร ∂ɳเ </p>
-<p align="center"> ૮ + ɦ เɳ૮   ✦  ρℓร เɳƭ !! </p>
+<p align="center"> ૮ + ɦ εɳ૮   ✦  ρℓร เɳƭ !! </p>
 
 <p> </p>
 
