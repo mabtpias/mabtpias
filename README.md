@@ -28,7 +28,7 @@
 
 <p> </p>
 
-<p align="center"> ƭเƭℓεร :  <a href="https://github.com/pt-fashion">ρσɳყ ƭσωɳ ƒαรɦเσɳ</a>
+<p align="center"> ƭเƭℓεร :  <a href="https://github.com/pt-fashion">ρσɳყ ƭσωɳ ƒαรɦเσɳ</a>   ✦   <a href="https://github.com/pt-everypony">ρƚ ҽʋҽɾყρσɳყ</a>
 
 <p> </p>
 
