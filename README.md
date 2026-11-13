@@ -31,7 +31,7 @@
 
 <p align="center"> ƭเƭℓεร ( αℓℓ µɳ∂ε૨ @αρρℓεɓµ૨รƭ )
    
-<p align="center"> <a href="https://github.com/pt-fashion">ρσɳყ ƭσωɳ ƒαรɦเσɳ</a>   ✦   <a href="https://github.com/pt-everypony">ρƚ ҽʋҽɾყρσɳყ</a> </p>
+<p align="center"> <a href="https://github.com/pt-fashion">ρƭ ƒαรɦเσɳ</a>   ✦   <a href="https://github.com/pt-everypony">ρƚ ҽʋҽɾყρσɳყ</a>   ✦   <a href="https://github.com/piddlesjet">ρเ∂∂ℓεรʝεƭ</a> </p>
 
 <p align="center"> <a href="https://github.com/music-town">ɱµรเ૮ ƭσωɳ</a> - เɱρσรƭε૨ รყɳ∂૨σɱε ɓყ รเ∂ɳεყ ɠเรɦ
 
